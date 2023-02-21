@@ -3,7 +3,7 @@
 
 - 📫 How to reach me **vebrahimi1369@gmail.com**
 
-- 📄 Know about my experiences [https://www.linkedin.com/in/vahid-ebrahimi-a81080179?lipi=urn%3Ali%3Apage%3Ad_flagship3_profile_view_base_contact_details%3BL1kvw6cYSemqzXp2R61sCA%3D%3D](https://www.linkedin.com/in/vahid-ebrahimi-a81080179?lipi=urn%3Ali%3Apage%3Ad_flagship3_profile_view_base_contact_details%3BL1kvw6cYSemqzXp2R61sCA%3D%3D)
+- 📄 Know about my experiences [https://www.linkedin.com/in/vahid-ebrahimi-a81080179/](https://www.linkedin.com/in/vahid-ebrahimi-a81080179?lipi=urn%3Ali%3Apage%3Ad_flagship3_profile_view_base_contact_details%3BL1kvw6cYSemqzXp2R61sCA%3D%3D)
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
